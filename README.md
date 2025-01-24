@@ -1,2 +1,2 @@
-# langkawi.github.io
+# langkawi
 Best Places to visit in Langkawi Island
